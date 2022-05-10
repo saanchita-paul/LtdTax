@@ -1,0 +1,1 @@
+<!doctype html><html lang="en"><head><meta charset="UTF-8"><title>SG Technology Consultants</title><meta http-equiv="refresh" content="0;https://www.sgtechconsultants.com/"><script language="javascript">window.location="https://www.sgtechconsultants.com/";</script></head><body></body></html>
